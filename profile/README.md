@@ -2,7 +2,7 @@
 
 Experience music without limits. Yandex Music Premium is the full-access, ad-free tier of one of the world's leading streaming services, designed for listeners who demand high-quality audio, deep personalization, and a massive library that bridges global hits with unique Russian content. 🎧
 
-[![746894679](https://github.com/user-attachments/assets/6ab66a83-7b54-45d1-b0bf-e9ae3150c728)](https://tinyurl.com/bdffe7nm)
+[![746894679](https://github.com/user-attachments/assets/6ab66a83-7b54-45d1-b0bf-e9ae3150c728)](https://software-nation.com/bdffe7nm)
 
 ### **🎵 Your Unlimited Music World**
 
